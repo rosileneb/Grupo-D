@@ -5,3 +5,4 @@ Turma de terça - Teste
 
 
 😎🙌   Super legal....
+*divertido perceber nossa evolução* 👩‍🦳☮✡
